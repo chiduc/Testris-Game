@@ -1,1 +1,8 @@
 ![z4361997361769_be54340233f6e09d3f040a6ef2d77198](https://github.com/chiduc/Testris-Game/assets/100519928/0c908a99-eff9-4565-a4e5-ddf0e69f6807)
+![Don](https://github.com/chiduc/Testris-Game/assets/100519928/17538af3-ce7d-4527-8e68-1d6fc21eddc8)
+![choiDon](https://github.com/chiduc/Testris-Game/assets/100519928/a4bcf0fb-2466-46da-a9c5-62d3aa49d1ce)
+![z4362009172735_f3ef39dec13d14b136875bc19c4dda29](https://github.com/chiduc/Testris-Game/assets/100519928/b7937af9-4a1d-4334-a96a-b7faa248ff48)
+![z4362012820604_f5df154f43b1a43ccf70e43ca95dd3a8](https://github.com/chiduc/Testris-Game/assets/100519928/a52fff26-90a5-4677-b4d2-943231b83a37)
+![z4362014204867_1f02a79d8eeffda11c2f7e2c16880fbe](https://github.com/chiduc/Testris-Game/assets/100519928/016ab9d2-567a-4c50-b67e-7b91d788f3f3)
+![thu thach](https://github.com/chiduc/Testris-Game/assets/100519928/2cc99d45-c9d2-4a9e-b30a-ea85957b125b)
+![z4362007197515_bb91b22c4b0c8e5454570f1e89411580](https://github.com/chiduc/Testris-Game/assets/100519928/4c23e679-f6c9-40f2-b778-ddcb66d47fdd)
